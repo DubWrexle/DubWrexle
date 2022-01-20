@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DubWrexle
+- 👀 I’m interested in well coding and application design.
+- 🌱 I’m currently learning to create my own apps from the ground.
+- 💞️ I’m looking to collaborate on any app idea or design element that needs to be created.
+- 📫 How to reach me: hallberg.august@gmail.com or via instagram (august_hallberg)
